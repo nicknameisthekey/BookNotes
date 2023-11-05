@@ -143,3 +143,4 @@ Some books i read:
 | Дюна	Dune	                        | Frank Herbert	            | Dune                  | 2021  |
 | First break all the rules             |                           |                       | 2022  |
 | The sweet spot: The Pleasures of Suffering and the Search for Meaning | Paul Bloom |      | 2023  |
+| The inner game of tennis              |                           |                       | 2023  |
