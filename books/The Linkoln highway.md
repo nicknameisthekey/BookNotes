@@ -1,0 +1,19 @@
+There is nothing so enigmatic as the human will—or so the headshrinkers would have you believe. According to them, the motivations of a man are a castle without a key. They form a multilayered labyrinth from which individual actions often emerge without a readily discernible rhyme or reason. But it’s really not so complicated. If you want to understand a man’s motivations, all you have to do is ask him: What would you do with fifty thousand dollars? When you ask most people this question, they need a few minutes to think about it, to sort through the possibilities and consider their options. And that tells you everything you need to know about them. But when you pose the question to a man of substance, a man who merits your consideration, he will answer in a heartbeat—and with specifics. Because he’s already thought about what he would do with fifty grand. He’s thought about it while he’s been digging ditches, or pushing paper, or slinging hash. He’s thought about it while listening to his wife, or tucking in the kids, or staring at the ceiling in the middle of the night. In a way, he’s been thinking about it all his life.
+
+—No, said Woolly, it wasn’t so hard, Billy. Certainly not like the Château d’If was for Edmond Dantès. It’s just that . . . It’s just that every day at Salina was an every-day day.
+—What’s an every-day day, Woolly?
+Woolly took another moment to consider.
+—When we were at Salina, every day we would get up at the same time and
+get dressed in the same clothes. Every day we had breakfast at the same table with the same people. And every day we did the same work in the same fields before going to sleep at the same hour in the same beds.
+Though Billy was just a boy, or maybe because he was just a boy, he seemed to understand that while there is nothing wrong with waking up or getting dressed or having breakfast, per se, there is something fundamentally disconcerting about doing these things in the exact same fashion day in and day out, especially in the one-thousand-page version of one’s own life.
+
+—Righto, he replied. The Big Apple! But are you sure about New York? The
+thing about a freight yard is you can get to anywhere you’ve thought of, and plenty of places you haven’t. Florida. Texas. California. How about Santa Fe? You been there? Now that’s a town. This time of year, it’s warm durin’ the day and cool at night, and it’s got some of the friendliest señoritas you’ll ever meet.
+As the panhandler began laughing, Emmett worried he was losing the thread of their conversation again.
+—I’d love to go to Santa Fe at some point, Emmett said, but for the time being, I need to go to New York.
+The panhandler stopped laughing and adopted a more serious expression.
+—Well, that’s life in a nutshell, ain’t it. Lovin’ to go to one place and havin’ to go to another.
+
+Hundreds of years ago, the whiskey bottle had been designed to have a body that was big enough for holding, and a neck that was narrow enough for pouring. But if you happened to invert the bottle, taking hold of the neck, suddenly it’s as if it had been designed to hit a blighter over the head. In a way, the whiskey bottle was sort of like a pencil with an eraser—with one end used for saying things, and the other for taking them back.
+
+Wouldn’t it have been wonderful, thought Woolly, if everybody’s life was like a piece in a jigsaw puzzle. Then no one person’s life would ever be an inconvenience to anyone else’s. It would just fit snugly in its very own, specially designed spot, and in so doing, would enable the whole intricate picture to become complete.

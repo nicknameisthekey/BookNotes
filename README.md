@@ -144,3 +144,5 @@ Some books i read:
 | First break all the rules             |                           |                       | 2022  |
 | The sweet spot: The Pleasures of Suffering and the Search for Meaning | Paul Bloom |      | 2023  |
 | The inner game of tennis              |                           |                       | 2023  |
+| How to Build a Car: The Autobiography of the World’s Greatest Formula 1 Designer| Adrian Newey | | 2023 |
+| The Lincoln Highway                   | Amor Towles               |                       | 2023  |
