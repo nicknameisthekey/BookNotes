@@ -146,3 +146,4 @@ Some books i read:
 | The inner game of tennis              |                           |                       | 2023  |
 | How to Build a Car: The Autobiography of the World’s Greatest Formula 1 Designer| Adrian Newey | | 2023 |
 | The Lincoln Highway                   | Amor Towles               |                       | 2023  |
+| The Biggest Bluff                     | Maria Konnikova           |                       | 2025  |
