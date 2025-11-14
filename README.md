@@ -147,3 +147,4 @@ Some books i read:
 | How to Build a Car: The Autobiography of the World’s Greatest Formula 1 Designer| Adrian Newey | | 2023 |
 | The Lincoln Highway                   | Amor Towles               |                       | 2023  |
 | The Biggest Bluff                     | Maria Konnikova           |                       | 2025  |
+| Wild Problems: A Guide to the Decisions That Define Us | Russell D. Roberts |             | 2025  |
