@@ -149,3 +149,4 @@ Some books i read:
 | The Biggest Bluff                     | Maria Konnikova           |                       | 2025  |
 | Wild Problems: A Guide to the Decisions That Define Us | Russell D. Roberts |             | 2025  |
 | ЭКОНОМИКА РЕСПУБЛИКИ КОРЕЯ            | М.П. Кукла                |                       | 2026  |
+| Meditations for mortals               | Oliver Burkeman           |                       | 2026  |
